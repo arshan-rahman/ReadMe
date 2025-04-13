@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎓Class 12th Graduate,<br>📝Article Writer,<br>📸Photographer,<br>💻Coding Enthusiast,<br>🚀Exploring creativity through words, lenses, and code.
+📝Article Writer,<br>📸Photographer,<br>💻Coding Enthusiast,<br>🚀Exploring creativity through words, lenses, and code.
 
 
 ## 🌐 Socials:
